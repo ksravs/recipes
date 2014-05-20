@@ -1,4 +1,4 @@
 recipes
 =======
 
-Crowd-sourced haute cuisine
+Mac and cheese with lots of cheese
